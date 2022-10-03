@@ -1,1 +1,1 @@
-[Saumitra Kapoor](www.github.com/kapoorsaumitra)
+[Saumitra Kapoor](https://github.com/kapoorsaumitra)
